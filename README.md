@@ -16,4 +16,7 @@
 
 ## 스크린샷
 
+[![image.png](https://i.postimg.cc/rmchsnMJ/image.png)](https://postimg.cc/wtf5bkty)
+
+
 [![2025-08-29-11-02-43.gif](https://i.postimg.cc/ZRpC7Hd1/2025-08-29-11-02-43.gif)](https://postimg.cc/0M5krpZf)
